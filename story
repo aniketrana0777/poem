@@ -1,3 +1,3 @@
 heloo frined
-my name is shubham
-you are good perosn
+my name is deeplai
+im very intelligent
